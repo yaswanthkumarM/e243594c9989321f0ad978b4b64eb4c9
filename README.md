@@ -1,2 +1,0 @@
-# e243594c9989321f0ad978b4b64eb4c9
-Placement Bootcamp 2017
